@@ -5,4 +5,4 @@ tes commit
 push pertama
 
 
-Muhammad Farhan Binashrillah / 202410101101
+NAMA / NIM
